@@ -1,4 +1,4 @@
-# 
+# Ultimate pump.fun sniper bot presets for Mac OS | Smart pump.fun sniper bot presets for PC Windows. Featuring nonce manipulation and bundle execution — optimized for maximum performance on every platform.
 
 
 
